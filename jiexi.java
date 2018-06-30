@@ -1,1 +1,1 @@
-【链接】http://vip.qingweitao.top/jx/?url=【链接】
+【AAA】http://vip.qingweitao.top/jx/?url="..webView.getUrl()【AAA】
