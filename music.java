@@ -1,0 +1,1 @@
+【链接】http://lab.mkblog.cn/music/【链接】
