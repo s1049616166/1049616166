@@ -1,5 +1,5 @@
 【链接1】https://rt.fapality.com/【链接】
-【链接2】http://phimxxx.tv/【链接】
+【链接2】http://www.923wmn.com/vodtype/16-1.html【链接】
 【链接3】https://712f.com/【链接】
 【链接4】https://www.585sp.com/log/index.html【链接】
 【链接5】http://www.yemalu.tv/【链接】
@@ -10,7 +10,7 @@
 【链接10】https://www.6858t.com/【链接】
 【链接11】https://www.lionav.cc/【链接】
 【链接12】https://www.960sp.com/【链接】
-【链接13】http://www.923wmn.com/vodtype/16-1.html【链接】
+【链接13】http://phimxxx.tv/【链接】
 【链接14】http://www.exocams.com【链接】【内容】此处为直播资源请连接vpn访问！【内容】]]
 【链接20】https://www.991bt.com【链接】
 【链接21】http://m.mzitu.com/zhuanti【链接】
