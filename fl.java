@@ -1,5 +1,5 @@
 【链接1】https://rt.fapality.com/【链接】
-【链接2】https://www.585sp.com/log/index.html【链接】
+【链接2】https://www.970sp.com/【链接】
 【链接3】https://www.662cf.com/htm/index.htm【链接】
 【链接4】https://www.6858t.com/【链接】
 【链接5】https://www.960sp.com/【链接】
