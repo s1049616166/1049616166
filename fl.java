@@ -17,3 +17,5 @@
 【链接22】https://www.wnacg.org/【链接】
 【链接a】加载网页("http://cilisousou.cn/wp/category/ys/")【链接】
 【链接b】加载网页("http://cilisousou.cn/wp/category/qs/")【链接】
+【链接d1】https://www.lanzous.com/i1eo05e【链接】
+【链接d2】http://suo.im/4WUq3L【链接】
