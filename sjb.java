@@ -1,1 +1,0 @@
-【链接】https://hlsworldcupwb.miguvideo.com/live/mgsp_h5share1/playlist.m3u8【链接】
