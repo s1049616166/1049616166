@@ -1,6 +1,6 @@
 --视频
 
-【video】http://www.zzyo.cc【video】
+【video】http://V.qq.com【video】
 
 【video2】http://www.9kyy.com【video2】
 
