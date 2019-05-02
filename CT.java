@@ -6,7 +6,7 @@
 
 --音乐
 
-【music】http://host811165811.s484.pppf.com.cn/【music】
+【music】http://mkonlineplayer.two3.cn/【music】
 
 --直播
 
